@@ -16,7 +16,7 @@ A big lesson I learnt in this project is learning when and how to lift my spirit
 
 Sweet carrots,
 
-## **Bunny Ryou**
+**Bunny Ryou**
 
 ---
 
